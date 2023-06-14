@@ -1,8 +1,6 @@
 ### Hey! i'm nxyy/nay 
 
-i play roblox, minecraft, fnf, gpop.io (good game btw), and others.
-
-Roblox User: nay23576
+i play minecraft, fnf, gpop.io (good game btw), and others.
 
 Minecraft User: NxyyLOL
 
