@@ -1,10 +1,12 @@
 ### Hey! i'm nxyy/nay 
 
-i play minecraft, fnf, gpop.io (good game btw), and others.
+i play minecraft, fnf, gpop.io, & others.
 
-Minecraft User: NxyyLOL
+m!necr@ft u$er: NxyyLOL
 
-Minecraft Alt: TheBoiUSlayed
+m!necr@ft @lt: TheBoiUSlayed
 
-gpop.io User: NxyyLOL
+gpop.io u$er: NxyyLOL
+
+d!$cord: nxyy.
 
