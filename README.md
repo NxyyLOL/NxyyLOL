@@ -1,12 +1,7 @@
-### Hey! i'm nxyy/nay 
+### hi
 
-i play minecraft, fnf, gpop.io, & others.
+discord user https://discord.com/users/875096125588262914
 
-m!necr@ft u$er: NxyyLOL
+my hosting: discord.gg/nxyyhost
 
-m!necr@ft @lt: TheBoiUSlayed
-
-gpop.io u$er: NxyyLOL
-
-d!$cord: nxyy.
-
+my store; discord.gg/nxyy
