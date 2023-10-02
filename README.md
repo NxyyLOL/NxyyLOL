@@ -7,6 +7,7 @@
 
 C͟o͟n͟t͟a͟c͟t͟
 - 📫 Reach me at: nxyy. for custom work or any inquiries.
+- 📫 or check my bio https://e-z.bio/nxyy
 
 
 A͟b͟o͟u͟t͟ ͟m͟e͟
