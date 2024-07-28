@@ -2,7 +2,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=nxyylol" alt="nxyylol" /></a> </p>
 
-- 🔭 I’m currently working on [anything](https://discord.gg/nxyy)
+- 🔭 I’m currently working on [anything](https://discord.gg/howll)
 
 - 👯 I’m looking to collaborate on [anything](https://discord.gg/nxyy)
 
