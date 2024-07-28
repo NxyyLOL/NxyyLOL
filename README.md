@@ -10,15 +10,15 @@
 
 - 💬 Ask me about **python**
 
-- 📫 How to reach me **nxyy@nxyy.lol**
+- 📫 How to reach me **nxyy@nxyy.store**
 
 - ⚡ Fun fact **i lazy af + broke**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/nxyylol" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="nxyylol" height="30" width="40" /></a>
-<a href="https://instagram.com/nxyylol" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="nxyylol" height="30" width="40" /></a>/a>
-<a href="https://discord.gg/nxyy" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="nxyy" height="30" width="40" /></a>
+<a href="https://instagram.com/nxyystore" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="nxyylol" height="30" width="40" /></a>/a>
+<a href="https://discord.gg/howll" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="nxyy" height="30" width="40" /></a>
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
