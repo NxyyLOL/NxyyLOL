@@ -4,9 +4,9 @@
 
 - 🔭 I’m currently working on [anything](https://discord.gg/howll)
 
-- 👯 I’m looking to collaborate on [anything](https://discord.gg/nxyy)
+- 👯 I’m looking to collaborate on [anything](https://discord.gg/howll)
 
-- 🤝 I’m looking for help with [anything](https://discord.gg/nxyy)
+- 🤝 I’m looking for help with [anything](https://discord.gg/howll)
 
 - 💬 Ask me about **python**
 
