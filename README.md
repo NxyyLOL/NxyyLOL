@@ -1,6 +1,6 @@
-honestly lazy to make readme so\n
-discord.gg/linked\n
-discord.gg/won\n
-discord.gg/apply\n
-https://court.gay\n
-https://honest.rocks\n
+honestly lazy to make readme so
+discord.gg/linked
+discord.gg/won
+discord.gg/apply
+https://court.gay
+https://honest.rocks
