@@ -3,4 +3,4 @@ discord.gg/linked
 discord.gg/won
 discord.gg/apply
 https://court.gay
-https://honest.rocks
+[![donate](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/T6T7OK63O)
